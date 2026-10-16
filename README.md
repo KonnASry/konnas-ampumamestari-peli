@@ -1,1 +1,0 @@
-# konnas-ampumamestari-peli
